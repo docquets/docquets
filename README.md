@@ -1,9 +1,9 @@
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
 
-<p align="center"> ʜɪ! ɪ'ᴍ ꜱᴀꜰᴇᴛʏʙʟᴀɴᴋ
+<p align="center"> 
 
-<p align="center"> ᴛʜɪꜱ ɪꜱ ᴊᴜꜱᴛ ᴀɴ ᴀʟᴛ ᴀᴄᴄ
+<p align="center"> 
 
 
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎
